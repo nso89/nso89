@@ -1,4 +1,3 @@
-- Pronouns: He/Him.
 - Fun facts:    
   * I like `Doom (2005)` and `Doom: Annihilation (2019)`.
   * I love spy history and fiction.
